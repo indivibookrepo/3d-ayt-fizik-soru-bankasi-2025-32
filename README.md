@@ -1,0 +1,1 @@
+# 3d-ayt-fizik-soru-bankasi-2025-32
